@@ -46,4 +46,5 @@ https://drive.google.com/file/d/19nSBVYw1dfTvTRpjLPQhsDNdJMdlLGC6/view?usp=drive
 
 **Sathya Prakash S**
 
-Data Analytics Intern – ApexPlanet Software Pvt. Ltd.
+Data Analytics Intern-
+ApexPlanet Software Pvt. Ltd.
